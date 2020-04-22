@@ -1,2 +1,2 @@
-# shivammaindola.github.io
-My personal website
+# tanviagwl98.github.io
+My Portfolio
